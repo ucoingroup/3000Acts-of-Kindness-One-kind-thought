@@ -493,5 +493,5 @@ Earth EACO - 3000 Acts of Kindness One kind thought, one kind act, one kind word
 
  祝福地球村的孩子们儿童节快乐，健康幸福的成长。行善三千积阴德。
 
-如何识别并规避化解 自己和他人内心的恶意？
+如何识别并规避化解 自己和他人内心的恶意？正心正念 正能量。
 
